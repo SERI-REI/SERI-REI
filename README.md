@@ -10,6 +10,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playwrite+New+Zealand+guides&duration=4000&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=My+moon%2C;The+moon+my+man%E2%80%A6)](https://git.io/typing-svg)
 
+♡
+
 </div>
 
 <div align="center">
